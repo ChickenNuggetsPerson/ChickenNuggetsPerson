@@ -1,1 +1,1 @@
-"So this will show on my public Github profile?" - Me
+I'm a material girl in a material world
